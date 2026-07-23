@@ -22,6 +22,8 @@ Got more questions? Don't be afraid to ask! I'm usually afk because I'm extremel
 P.S its kind of hard (double p.s IT IS EXTREMELY HARD TO CATCH ME ACTIVE, and im sorry about that) to catch me being active. most of the time im studying/at work and afk in game, but trust me! you can always whisper me cool stories so I can read them, its nice to hear about other people after hours of stress. Maybe if you're lucky, you'll catch me being active!
 
 P.S x2 I am VERY social! yes i can talk but I usually only make gestures, ..heh...ponytown sign language, typing is pretty tiring but I can understand polish and english, just dont expect me to type much
+
+Yes!! I am omniverted, sometimes i will shy away or sometimes maybe if you're lucky enough I might join you to play around!
 ___________
 
 # DISCORD INFO
