@@ -4,7 +4,9 @@ https://puppzz.lurk.me
 ______
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=natterstefan&color=FAC151)
+
 *whisp me what pony I should make or put it in my lurk.me chat!*
+
 PT INFO! READ DOWN
 
 CUDDLES = yes!
