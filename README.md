@@ -9,6 +9,8 @@ ______
 
 PT INFO! READ DOWN
 
+DNC!, IF I ever find out you copied / posted me, be prepared to get immediately approached, IF you see me posted/copied, please tell me immediately in whispers, chat, etc.
+
 CUDDLES = yes!
 
 BOOPS = yes!
