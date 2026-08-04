@@ -1,41 +1,58 @@
-Read my Lurk.me! and send a message to chat if you like! info has moved onto there (ITS A WIP)
 
-https://puppzz.lurk.me
-______
 
-![GitHub Views](https://komarev.com/ghpvc/?username=natterstefan&color=FAC151)
+<p align="center">
+<img width="736" height="223" alt="Untitled87_20260804113534" src="https://github.com/user-attachments/assets/9fd78880-bdd9-46e9-8b2c-359da9b2306d" />
+</p>
 
-*whisp me what character(s) I should make or put it in my lurk.me chat!*
+<p align="center">$\color{#f5e9c4}{finest}$‎ ‎ $\color{#d0bce3}{masterpiece}$ </p>
+ 
+<p align="center"> $\color{#fcb18d}{꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}$‎  </p> 
 
-PT INFO! READ DOWN
 
-DNC!, IF I ever find out you copied / posted me, be prepared to get immediately approached, IF you see me posted/copied, please tell me immediately in whispers, chat, etc.
+<p align="center">═══════</p>
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=chokedcries&label=Profile%20Views&color=fcea8d&style=plastic" alt="Profile Views" />
+</p>
+<p align="center">═══════</p>
 
-CUDDLES = yes!
 
-BOOPS = yes!
+<p align="center">
+<img width="936" height="736" alt="Untitled86_20260804110143" src="https://github.com/user-attachments/assets/509d83f7-43c0-490a-8a4d-857ec99b080c" /> </p>
 
-INT = YES PLEASE
 
-!!!!!!!!!!!!!!!!!!DNC MY SKINS THEY CANNOT POSSIBLY BE THAT GOOD!!!!!!!!!!!!!!!!!
 
-SHIPS = yes sure!
 
-Got more questions? Don't be afraid to ask! I'm usually afk because I'm extremely busy all the time, but don't worry! Stop by and try to catch me at the right time! You can whisper, publicly ask me or even hunt me down
 
-P.S its kind of hard (double p.s IT IS EXTREMELY HARD TO CATCH ME ACTIVE, and im sorry about that) to catch me being active. most of the time im studying/at work and afk in game, but trust me! you can always whisper me cool stories so I can read them, its nice to hear about other people after hours of stress. Maybe if you're lucky, you'll catch me being active!
 
-P.S x2 I am VERY social! yes i can talk but I usually only make gestures, ..heh...ponytown sign language, typing is pretty tiring but I can understand polish and english, just dont expect me to type much
 
-Yes!! I am omniverted, sometimes i will shy away or sometimes maybe if you're lucky enough I might join you to play around!
-___________
 
-# DISCORD INFO
 
-Wanna be REAL friends? Add my discord! -> @66vmpz
+<p align="center">‎ $\color{#8ae699}{c+h,}$ $\color{#8ae699}{int,}$‎ $\color{#8ae699}{ships(ask)}$ unless if $\color{#e68e8a}{dni}$‎ ‎ ‎ </p>
 
-Please do standby, again I am busy a lot of the time, so messages and friend request accepting will be delayed
-______
-# TWITTER INFO
 
-@Sk13sSxd
+
+<p align="center">$\color{#d0bce3}{I}$ $\color{#d0bce3}{don't}$ $\color{#d0bce3}{talk}$ $\color{#d0bce3}{much}$ </p>
+
+<p align="center">
+  <a href="https://puppzz.lurk.me" style="color:#fff3cc; text-decoration:inherit;">
+    𑣲⋆Learn more about me! ⸝⸝
+  </a>
+</p>
+
+
+
+
+<p align="center">
+<img width="384" height="333" alt="Untitled91_20260804140444" src="https://github.com/user-attachments/assets/65f3f36a-f7fb-419c-aa67-68f8cca1eab8" />
+</p>
+
+
+
+
+
+
+
+
+
+
+ 
