@@ -49,9 +49,11 @@
 
 
 
+<p align="center">
+<img width="230" height="37" alt="Screenshot 2026-08-15 123144" src="https://github.com/user-attachments/assets/000f84c6-970d-4e48-b07f-d8b16b591c1b" />
+</p>
 
-
-
+<p align="center">‎ AHH TY ‎ ‎ </p>
 
 
 
