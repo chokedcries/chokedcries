@@ -23,7 +23,9 @@
 
 
 
-
+<h3 align="center">
+  <i><span style="color: red;">PLEASE interact! I get shy approaching in times and i really dislike being alone :(</span></i>
+</h3>
 
 
 
